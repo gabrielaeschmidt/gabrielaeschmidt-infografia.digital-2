@@ -1,1 +1,1 @@
-# gabrielaeschmidt-infografia.digital-2
+# infografia.digital-2
